@@ -1,4 +1,4 @@
 Thomas Edson
 🤘
 
-![.](https://view/walter-white-falling-fast-gif-18043850)
+![.](https://tenor.com/pt-BR/view/walter-white-falling-fast-gif-18043850.gif)
